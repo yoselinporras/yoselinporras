@@ -46,12 +46,6 @@
 
 ---
 
-## 🌊 Quote
-
-> "Technology doesn't just solve problems — it creates opportunities"
-
----
-
 ✨ Thanks for visiting my profile ✨
 
 </div>
